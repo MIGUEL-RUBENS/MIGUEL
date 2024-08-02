@@ -7,4 +7,4 @@ Meu nome e Miguel Rubens mas eu gosto de ser chamado de TORTino, pq? Eu não sei
  - Utilizo esse espaço pra minha organização(que eu não tenho) e compartilhamento dos meu projetos desenvolvidos ou incompleto(por causa da minha incompetencia)
 
 
-![]((https://media1.tenor.com/m/-WJZMWuiy38AAAAC/bom-dia-valtatuí-bom-dia.gif)).
+![](https://media1.tenor.com/m/-WJZMWuiy38AAAAC/bom-dia-valtatuí-bom-dia.gif).
