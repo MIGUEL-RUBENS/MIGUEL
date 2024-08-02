@@ -1,4 +1,4 @@
-![](https://media.tenor.com/U3saUzfEEJMAAAAj/among-us-sus.gif). #💜 BOM DIA, BOA NOITE E BOA TARDE A TODOS, TODES, TODAS💜 ![](https://media.tenor.com/TCzfmNLrLVIAAAAj/iloveyou-sweetdreams.gif).
+![](https://media.tenor.com/TCzfmNLrLVIAAAAj/iloveyou-sweetdreams.gif). #💜 BOM DIA, BOA NOITE E BOA TARDE A TODOS, TODES, TODAS💜 ![](https://media.tenor.com/U3saUzfEEJMAAAAj/among-us-sus.gif).
 
 Meu nome e Miguel Rubens mas eu gosto de ser chamado de TORTino, pq? Eu não sei.
 
